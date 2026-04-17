@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/rugr0n](https://github.com/rugr0n)
 
-- 📫 How to reach me **juan.corredor@utp.edu.co**
+- 📫 How to reach me **juanjose.corredor07@gmail.com**
 
 - ⚡ Fun fact **I'm still alive *badum tss***
 
